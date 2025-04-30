@@ -1,4 +1,4 @@
-Mike Masters
-Amundsen High School
+Mike Masters, Duke Best  
+Amundsen High School, CCC  
 
-Salt and Vinegar Chips
+Salt and Vinegar Chips, Peanut M&Ms
